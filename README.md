@@ -4,7 +4,9 @@
 - 💞️ I’m looking to collaborate with tons of other proxies and partner up with some😁
 - 📫 How to reach me Discord🏆 and Guns.lol😇
 - 😄 Pronouns: He Him
-- ⚡ Fun fact: 🤫🧏‍♂️
+- ⚡ Fun fact: I like hyperpop/dariacore. I like a little bit of jersey club
+- 
+ 
 
 <!---
 a1ecx/a1ecx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
